@@ -575,4 +575,370 @@ You're running a culinary crime family.
 
 *Lights out. Gangster jazz plays.*
 
-**THE END.**
+# **NATO: THE ALLIANCE OF FREEDOM, HOSPITALS & SUBWOOFERS**
+
+*A dark political comedy about American leadership, regulated freedom, international healthcare, digestive disasters, and the world's most dangerous bathroom stereo system.*
+
+**Style:** Gangster satire meets bad 1980s horror movie, with geopolitical absurdity and medical slapstick.
+
+## **Scene 1: America, the leader of the free world**
+
+*(A dramatic military soundtrack. A NATO flag waves behind a hospital reception desk.)*
+
+**ANTHONY:**
+
+Ladies and gentlemen, welcome to NATO!
+
+The North Atlantic Treaty Organization!
+
+America's great international alliance!
+
+We've got 32 countries, military cooperation, collective defense, and apparently one enormous health insurance policy that nobody knows how to use.
+
+America is the leader.
+
+We're exporting freedom!
+
+Regulated freedom!
+
+Personally approved freedom!
+
+You can be free to do whatever you want, provided you fill out the appropriate paperwork, get three signatures, and don't forget your hospital deductible.
+
+That's American democracy!
+
+Article 5 says an attack against one member is an attack against all.
+
+Article 6 says your hospital bill is an attack against your checking account.
+
+And Article 7 says if you eat something questionable in the cafeteria, you're on your own!
+
+*(Pause.)*
+
+I went to the hospital and asked if America was part of the healthcare alliance.
+
+They said, "Sir, we're not part of NATO."
+
+I said, "Then why does this hospital look like a military installation?"
+
+They said, "Because we're defending your wallet."
+
+## **Scene 2: The horror movie called Healthcare**
+
+*(Thunder. A hospital corridor. A nurse slowly pushes a wheelchair through the darkness.)*
+
+You ever notice American healthcare looks like a bad horror movie?
+
+The lights flicker.
+
+The elevator doesn't work.
+
+There's a mysterious noise coming from the digestive department.
+
+And somewhere in the distance, a doctor whispers:
+
+"Your insurance doesn't cover that."
+
+That's when the music starts!
+
+DUN! DUN! DUUUUN!
+
+The patient is running down the hallway.
+
+The hospital administrator is chasing him with a clipboard.
+
+The billing department is behind them with a calculator.
+
+And the surgeon?
+
+He's just standing there saying:
+
+"Does anybody know where the cafeteria is?"
+
+America has the world's most advanced technology.
+
+We can send satellites into orbit.
+
+We can photograph the surface of Mars.
+
+We can identify a submarine from 500 miles away.
+
+But somehow, when I ask for my medical records, they need a search warrant and a flashlight!
+
+## **Scene 3: The world's shortage of love**
+
+Here's the really frightening part.
+
+Imagine a world where people don't have enough love.
+
+Not enough compassion.
+
+Not enough patience.
+
+Not enough respect for one another.
+
+Everybody's measuring their success in money.
+
+Some people have so much money they don't know what to do with it.
+
+Other people are struggling to buy groceries.
+
+And somewhere in the middle, somebody decides that violence is a business model.
+
+That's not economic development!
+
+That's a horror movie written by an accountant!
+
+You've got people selling fear, buying weapons, and calculating the financial return on human suffering.
+
+What happened to the old-fashioned economy?
+
+You know, where somebody made a sandwich and everybody went home happy?
+
+Now the international financial system needs a therapist.
+
+**America says:** We're going to lead the free world!
+
+**The world says:** Great! Can we have some healthcare?
+
+**America says:** We have a defense budget!
+
+**The world says:** That's nice. Can we have some affordable medicine?
+
+**America says:** We have an aircraft carrier!
+
+**The world says:** Does it have a pharmacy?
+
+*(Pause.)*
+
+That's the problem with international leadership.
+
+Everybody wants to command the fleet.
+
+Nobody wants to clean the kitchen.
+
+## **Scene 4: The digestive defense department**
+
+*(Anthony enters wearing a white laboratory coat and holding a blender full of slushies.)*
+
+Now let's discuss the digestive system.
+
+America has a Department of Defense.
+
+I think we need a Department of Digestion.
+
+Because some of these hospitals are moving slower than a government procurement contract.
+
+The intestines are backed up.
+
+The stomach is protesting.
+
+The colon has declared independence.
+
+And the patient is sitting there asking:
+
+"Doctor, what's the treatment?"
+
+The doctor says, "More fluids."
+
+I said, "What kind?"
+
+He says, "Water."
+
+I said, "What about a slushie?"
+
+He says, "That's not a medical strategy."
+
+I said, "You haven't met my digestive system."
+
+Sometimes you need a little ice, a little hydration, and a vacation from the cafeteria.
+
+Of course, if you're dealing with persistent digestive problems, you need an actual medical assessment, not a military intervention.
+
+But the way these hospitals operate, I'm expecting NATO to send a peacekeeping mission into my small intestine.
+
+**General:** We have established a humanitarian corridor.
+
+**Doctor:** That's the colon.
+
+**General:** We are proceeding with Operation Smooth Passage.
+
+**Patient:** Somebody please call the plumber!
+
+## **Scene 5: The Philips bathroom sound system**
+
+*(A spotlight hits an enormous subwoofer next to a toilet.)*
+
+Now, let's talk about laxatives.
+
+I always thought the best one was named after a stereo equipment company.
+
+Philips!
+
+I figured if anybody could move something, it would be Philips.
+
+That thing didn't just have a bass note.
+
+It had a bowel movement with Dolby Surround Sound!
+
+You take one dose and suddenly your bathroom has a sound system.
+
+BOOOOOOM!
+
+The neighbors think you've installed a ported subwoofer.
+
+The guy downstairs calls building management.
+
+"There's a strange harmonic frequency coming through the plumbing!"
+
+I said, "That's not a stereo installation. That's a medical emergency with a crossover network!"
+
+You've got tuned harmonics.
+
+You've got a ported enclosure.
+
+You've got a 12-inch driver.
+
+And you've got one very nervous man asking whether the volume can be turned down.
+
+The doctor says, "How are you feeling?"
+
+I say, "A little lighter."
+
+He says, "Any side effects?"
+
+I say, "My bathroom has become a concert venue."
+
+**Doctor:** What frequency?
+
+**Anthony:** Around 40 hertz.
+
+**Doctor:** That's low.
+
+**Anthony:** Not as low as my dignity!
+
+## **Scene 6: NATO's international medical summit**
+
+*(A conference table. Flags of America, Britain, France, Germany, and other NATO countries.)*
+
+**AMERICAN GENERAL:** We need international cooperation.
+
+**BRITISH DELEGATE:** On defense?
+
+**AMERICAN GENERAL:** On defense, energy, food, and healthcare.
+
+**FRENCH DELEGATE:** What about quality of life?
+
+**AMERICAN GENERAL:** Absolutely.
+
+**GERMAN DELEGATE:** What about medical infrastructure?
+
+**AMERICAN GENERAL:** We'll establish a committee.
+
+**ANTHONY:** What about the slushies?
+
+*(Silence.)*
+
+**AMERICAN GENERAL:** Excuse me?
+
+**ANTHONY:** The slushies! The digestive infrastructure! The Philips subwoofer! We've got people suffering in the bathroom while you're discussing military logistics!
+
+**FRENCH DELEGATE:** We have excellent pastries.
+
+**ANTHONY:** That's not helping!
+
+**BRITISH DELEGATE:** Perhaps a cup of tea?
+
+**ANTHONY:** Now we're getting somewhere.
+
+**AMERICAN GENERAL:** We need a strategic plan.
+
+**ANTHONY:** Here's the plan:
+
+- Feed people.
+- Treat people.
+- Protect people.
+- Stop turning everything into a financial transaction.
+- And install better plumbing.
+
+**GERMAN DELEGATE:** That's surprisingly practical.
+
+**ANTHONY:** That's because I have a working digestive system and a basic understanding of civilization!
+
+## **Scene 7: The final horror**
+
+*(Lights go dark. A hospital monitor beeps. A NATO general appears in silhouette.)*
+
+**GENERAL:** America stands ready to defend freedom.
+
+**ANTHONY:** Wonderful.
+
+**GENERAL:** We will protect international stability.
+
+**ANTHONY:** Excellent.
+
+**GENERAL:** We will strengthen cooperation.
+
+**ANTHONY:** Fantastic.
+
+**GENERAL:** We will establish a new international regulatory framework.
+
+**ANTHONY:** Oh, no.
+
+**GENERAL:** Every citizen will be required to register their digestive system.
+
+**ANTHONY:** WHAT?!
+
+**GENERAL:** All bowel movements will be subject to international observation.
+
+**ANTHONY:** This is no longer NATO. This is the North Atlantic Toilet Organization!
+
+**GENERAL:** Your slushie consumption requires authorization.
+
+**ANTHONY:** I'M LEAVING!
+
+**GENERAL:** You cannot leave. Your bathroom is a strategic asset.
+
+*(A deep bass note sounds.)*
+
+BOOOOOOOOOOM.
+
+**GENERAL:** What was that?
+
+**ANTHONY:** Philips.
+
+*(The general slowly turns toward the bathroom.)*
+
+**GENERAL:** Evacuate the building.
+
+**ANTHONY:** Finally! An international decision I agree with!
+
+*Lights out.*
+
+## **Ten bonus gangster punchlines**
+
+1\. America leads NATO. My stomach leads the bathroom. Both have an impressive chain of command.
+
+2\. NATO has collective defense. I have collective indigestion. Everybody in the cafeteria is involved.
+
+3\. The Pentagon has a situation room. My intestines have a waiting room.
+
+4\. They said America was exporting freedom. I said, "Can you export some toilet paper?"
+
+5\. My doctor prescribed a slushie. I said, "What flavor?" He said, "International humanitarian assistance."
+
+6\. The Philips laxative had such a deep bass response that the bathroom mirror started vibrating. That's not medicine. That's a home theater installation.
+
+7\. The hospital said my digestive system was slow. I said, "Have you considered increasing the bandwidth?"
+
+8\. NATO has 32 members. My stomach has 32 grievances.
+
+9\. The chef said the food was internationally inspired. My digestive system said it was internationally wanted.
+
+10\. The world needs more love, less violence, better healthcare, and fewer people who think a spreadsheet can replace a human being.
+
+**ANTHONY'S FINAL LINE:**
+
+"Listen, the world doesn't need another arms race. It needs a healthcare race! Let's see who can build the best hospitals, feed the most people, cure the most diseases, and make life worth living. And if Philips wants to sponsor the bathroom department, I've got a subwoofer they can test!"
+
+*End credits roll over a very suspicious hospital elevator.*
